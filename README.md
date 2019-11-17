@@ -48,6 +48,20 @@ I avoid any kind of esotericism. I believe in science. There is no magic.
 
 It is not writing a diary. If you write a diary you are not passive. If you do the passive protocol of thoughts, you just take a short note. These notes usualy don't make sense to someone else. If you write a diary you tell a story, the second sentence referes to the first sentence. The ppot is different: It is likely that the second note does not relate to the first note at all.
 
+# Nirvana
+For me Nirvana is one of the best rock bands. With "smells like teen spirit"
+being one of their greatest hit.
+
+PPoT has no long-term goal. It should help
+you to find some peace today.
+
+I think it has a positive long-term effect.
+
+Reading the old notes can really be fun.
+
+I don't want the monkey mind to be silent. Live
+would be boring without it.
+
 # Feedback is welcome
 
 I am not a native speaker. If there is something not clear, then please write me (guettli.ppot@thomas-guettler.de) or create an issue here at github. Please tell me typos or anything else which could be improved.
