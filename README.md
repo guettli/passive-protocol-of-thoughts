@@ -38,9 +38,13 @@ It is likely that you get a thought like "Oh, I forget xyz. I need to this now".
 
 During this method I often think about things which I want to do in the next days. If there is something which is related to my work, then I write myself a mail to my address at work. If there is something I want to do in my sparetime, then I write myself to my personal email address. This is a bit tricky. The digital device could create unwanted input. Don't read messages now. Just write the message, and then lay the device down. Close your eyes again and watch your breath.
 
-I meditate a bit in the age of 17. When I was 35 I started to practice Yoga daily. When I was 40 I started to write a diary.
+I meditated a bit in the age of 17.
+
+When I was 35 I started to practice Yoga daily. When I was 40 I started to write a diary.
 
 I was inspired by [Yuval Noah Harari's](https://en.wikipedia.org/wiki/Yuval_Noah_Harari) chapter about meditation in his book [21 Lessons for the 21st Century](https://en.wikipedia.org/wiki/21_Lessons_for_the_21st_Century).
+
+Today writing this down I am 43 years old.
 
 # What's it not
 
