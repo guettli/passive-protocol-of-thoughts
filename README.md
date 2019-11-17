@@ -32,7 +32,7 @@ In buddism these sometimes "crazy" thoughts are called [Monkey mind](https://en.
 Sometime I feel [Ambivalence](https://en.wikipedia.org/wiki/Ambivalence). This method helps me to achieve a mentally clear and emotionally calm and stable state.
 
 
-Instead of doing it once a week four two hours, I think it is better to do it daily for ten minutes.
+Instead of doing it once a week for two hours, I think it is better to do it daily for ten minutes.
 
 It is likely that you get a thought like "Oh, I forget xyz. I need to this now". Then please keep on sitting. Just highlight this note somehow. This way you can do this important thing after the passive protocol of thoughts is finished.
 
