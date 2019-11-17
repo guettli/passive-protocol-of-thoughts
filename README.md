@@ -4,7 +4,7 @@ The "passive protocol of thoughts" is meditation method to achieve a mentally cl
 
 I found this method for myself, but I guess similar methods are well known since ages. It is a mixture of meditation and writing a diary.
 
-1. Be sure to have roughly 5 to 15 minutes without being disturbed. Make your phone silent. Try to be in a silent environment. Switch of noice production things like a radio.
+1. Be sure to have roughly 5 to 15 minutes without being disturbed. Make your phone silent. Try to be in a silent environment. Switch of noice production things like a radio. Using IT terms: No input.
 1. Set an alarm clock. How long? It's your choice. If unsure use 12 minutes.
 1. Take a sheet of paper and a pen or an other (maybe digitial) device to be able to take notes.
 1. Sit down. You should feel comfortable.
@@ -36,7 +36,7 @@ Instead of doing it once a week four two hours, I think it is better to do it da
 
 It is likely that you get a thought like "Oh, I forget xyz. I need to this now". Then please keep on sitting. Just highlight this note somehow. This way you can do this important thing after the passive protocol of thoughts is finished.
 
-During this method I often thing about things which I want to do in the next days. If there is something which is related to my work, then I write myself a mail to my address at work. If there is something I want to do in my sparetime, then I write myself to my personal email address. This is abit tricky. Don't get lost read messages. Just write the message, and then stop. Close your eyes again and watch your breath.
+During this method I often think about things which I want to do in the next days. If there is something which is related to my work, then I write myself a mail to my address at work. If there is something I want to do in my sparetime, then I write myself to my personal email address. This is a bit tricky. The digital device could create unwanted input. Don't get lost read messages. Just write the message, and then stop. Close your eyes again and watch your breath.
 
 I meditate a bit in the age of 17. When I was 35 I started to practice Yoga daily. When I was 40 I started to write a diary.
 
