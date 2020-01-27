@@ -72,6 +72,10 @@ Live would be boring without the monkey mind.
 
 I think above point of view is very different to the tradition definition of [Nirvana](https://en.wikipedia.org/wiki/Nirvana)
 
+# Related
+
+I was told that the passive protocol of thoughts method is like [Vipassanā](https://en.wikipedia.org/wiki/Vipassan%C4%81). I can't judge this. I don't know Vipassanā. The wikipedia page is full of words which I have never heard before. I don't like history. I like science, the current moment and the future.
+
 # Feedback is welcome
 
 I am not a native speaker. If there is something not clear, then please write me (guettli.ppot@thomas-guettler.de) or create an issue here at github. Please tell me typos or anything else which could be improved.
