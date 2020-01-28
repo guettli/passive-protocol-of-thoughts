@@ -38,6 +38,17 @@ It is likely that you get a thought like "Oh, I forgot xyz. I need to this now".
 
 During this method I often think about things which I want to do on the next days. If there is something which is related to my work, then I write myself a mail to my address at work. If there is something I want to do in my sparetime, then I write myself to my personal email address. This is a bit tricky. The digital device could create unwanted input. Don't read messages now. Just write the message, and then lay the device down. Close your eyes again and watch your breath.
 
+
+But you already think about your thoughts
+the whole day? You think this method won't
+let you experience something new?
+Writing down the thoughts slows you down.
+This slowness gives you more consciousness.
+Just try it. Not only once, but maybe
+once a week for three months. I think
+you will notice more consciousness.
+
+
 # My background
 
 I meditated a bit in the age of 17. But stopped doing since it felt uncomfortable. 
