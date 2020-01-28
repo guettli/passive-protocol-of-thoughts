@@ -85,7 +85,13 @@ I think above point of view is very different to the tradition definition of [Ni
 
 # Related
 
-I was told that the passive protocol of thoughts method is like [Vipassanā](https://en.wikipedia.org/wiki/Vipassan%C4%81). I can't judge this. I don't know Vipassanā. The wikipedia page is full of words which I have never heard before. I don't like history. I like science, the current moment and the future.
+I was told that the passive protocol of thoughts
+method is like [Vipassanā](https://en.wikipedia.org/wiki/Vipassan%C4%81). I can't judge this. 
+I don't know Vipassanā. The wikipedia page is full of words which I have never heard before. 
+At the current moment I am not
+in the mood for learning these
+words. I think it makes more sense to learn
+the current scientific findings.
 
 # Feedback is welcome
 
