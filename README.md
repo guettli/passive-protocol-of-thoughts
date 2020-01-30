@@ -65,8 +65,11 @@ Today writing this down I am 43 years old.
 
 I avoid any kind of esotericism/god/religion. I believe in science. There is no magic "energy". There are your feelings, and they are stronger than your muscles. Maybe you feel a lot, maybe nothing. It might be even possible that you see some kind of magic light with closed eyes ([A phenomenology of meditation-induced light experiences](https://www.frontiersin.org/articles/10.3389/fpsyg.2013.00973/full)). Relax, it is just an illusion. I know two people who start to believe in god because they have felt/seen this phenomena. One believes in the Christianity God since this day, and the other believes in some magic esoteric energy. I tried to confince them, but I failed.
 
+## Not a diary
+
 It is not writing a diary. If you write a diary you are not passive. If you do the passive protocol of thoughts, you just take a short note. These notes usualy don't make sense to someone else. If you write a diary you tell a story, the second sentence referes to the first sentence. The ppot is different: It is likely that the second note does not relate to the first note at all.
 
+## Not a brain dump
 It is not a brain dump. According to [techtarget.com](https://whatis.techtarget.com/definition/brain-dump) a brain dump is:
 
 > A brain dump (sometimes spelled braindump, or brain-dump) is a complete transfer of accessible knowledge about a particular subject from your brain to some other storage medium, such as paper or your computer's hard drive. It is common for someone who maintains a blog, a personal journal that's shared on the Internet, to refer to the blog as a brain dump. The term brain dump can also be used in an educational context. For example, someone preparing for an exam might perform a brain dump by writing out as much information as they can remember about something they've studied.
