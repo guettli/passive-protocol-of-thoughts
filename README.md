@@ -61,7 +61,7 @@ Today writing this down I am 43 years old.
 
 # What's it not
 
-## No esotericism, No god, No magic energie, no religion
+## No esotericism, no god, no magic energy, no religion
 
 I avoid any kind of esotericism/god/religion. I believe in science. There is no magic "energy". There are your feelings, and they are stronger than your muscles. Maybe you feel a lot, maybe nothing. It might be even possible that you see some kind of magic light with closed eyes ([A phenomenology of meditation-induced light experiences](https://www.frontiersin.org/articles/10.3389/fpsyg.2013.00973/full)). Relax, it is just an illusion. I know two people who start to believe in god because they have felt/seen this phenomena. One believes in the Christianity God since this day, and the other believes in some magic esoteric energy. I tried to confince them, but I failed.
 
