@@ -4,7 +4,7 @@ The "passive protocol of thoughts" is a meditation method to achieve a mentally 
 
 I found this method for myself, but I guess similar methods are well known since ages. It is a mixture of meditation and writing a diary.
 
-1. Be sure to have roughly 5 to 15 minutes without being interrupted. Make your phone silent. Try to be in a silent environment. Switch of noice production things like a radio. Using IT terms: No input.
+1. Be sure to have roughly 5 to 15 minutes without being interrupted. Make your phone silent. Try to be in a silent environment. Switch of noise production things like a radio. Using IT terms: No input.
 1. Set an alarm clock. How long? It's your choice. If unsure use 12 minutes.
 1. Take a sheet of paper and a pen or an other way to be able to take notes.
 1. Sit down. You should feel warm and comfortable.
