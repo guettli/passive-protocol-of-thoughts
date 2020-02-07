@@ -32,12 +32,9 @@ In Buddhism, these sometimes "crazy" thoughts are called [Monkey mind](https://e
 Sometimes I feel [Ambivalence](https://en.wikipedia.org/wiki/Ambivalence). This method helps me to achieve a mentally clear and emotionally calm and stable state.
 
 
-Instead of doing it once a week for two hours, I think it is better to do it daily for ten minutes.
+Instead of doing it once a week for two hours, I think it is better to do it once or twice a week for ten minutes.
 
 You likely get a thought like "Oh, I forgot xyz. I need to this now". Then please keep on sitting. Just highlight this note somehow. This way you can do this important thing after the passive protocol of thoughts is finished.
-
-During this method, I often think about things that I want to do that in the next few days. If there is something related to my work, then I write myself an mail to my address at work. If there is something I want to do in my spare time, then I write myself to my own email address. This is a bit tricky. The digital device could create unwanted input. Don't read messages now. Just write the message, and then lay the device down. Close your eyes again and watch your breath.
-
 
 But you already think about your thoughts
 the whole day? Do you think this method won't
