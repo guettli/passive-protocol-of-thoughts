@@ -93,6 +93,12 @@ Life would be boring without the monkey mind.
 
 I think the above point of view is very different from the traditional definition of [Nirvana](https://en.wikipedia.org/wiki/Nirvana)
 
+# If practiced in group ...
+If you practice the ppot in a group, then tell the group three times that there is no need to talk about private thoughts. 
+
+And after the ppot do it in a round robin way. For example clockwise, not "who wants to talk first, talks first".
+
+
 # Related
 
 I was told that the passive protocol of thought
