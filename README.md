@@ -1,4 +1,4 @@
-# Passive protocol of thoughts
+# Passive protocol of thoughts. A mindfulness exercise.
 
 The "passive protocol of thoughts" is a meditation method to achieve a mentally clear and emotionally calm and stable state.
 
